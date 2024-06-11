@@ -1,8 +1,8 @@
 - 👋 Oii, eu sou a gabi
 - 👀 Estou interessada em aprender coisas novas!
 - 🌱 Atualmente estou aprendendo a ser uma boa pessoa
-- 💞️ Procuro ser totalmente apaixonada!
-- 📫 quiser entrar em contato cmg, é so liga!
+- 💞️ Procuro muito útil e persistênte!
+- 📫 quiser entrar em contato cmg, é só liga!
 - 😄 Ela/dela
 - ⚡ Eu tenho um gato!
 
